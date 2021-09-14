@@ -28,6 +28,7 @@ Here are some ideas to get you started:
 
 ## How to contact
 - Connect with [LinkedIn](https://www.linkedin.com/in/diksha-bagade-265a811b5/)
+---
 
-Glad you stopped by 🤗  
-There isn't much, but hope you like it :blush:
+**Glad you stopped by 🤗  
+There isn't much, but hope you like it** :blush:
